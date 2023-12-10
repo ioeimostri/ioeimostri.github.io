@@ -1,4 +1,4 @@
-# ioeimostri.github.io
+# Io e i Mostri
 *Una ricerca emotiva, non razionale, non strutturata e senza fine su ogni mostro che attiri la mia attenzione.*
 
 In queste pagine cercherò di descrivere in maniera sintetica ogni mostruosità che mi interessa o che mi ha interessato. Cercherò di farlo raccontando i fatti noti o più probabili, facendo al conrempo una sorta di brainstorming per coprire possibilità diverse. Darò anche una mia interpretazione della mostruosità se ne avrò una sensata.
